@@ -1,1 +1,1 @@
- https://agkhawja.github.io/agkhawja-agkhawja.github.io/
+ https://agkhawja.github.io/agkhawja-agkhawj.github.io/
